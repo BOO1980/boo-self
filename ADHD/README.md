@@ -1,6 +1,9 @@
 # adhd
-
-https://www.additudemag.com/what-is-executive-function-disorder/ - not finished
+https://chadd.org/for-adults/cognitive-behavioral-therapy/
+https://www.additudemag.com/cognitive-behavioral-therapy-for-adhd/
+https://www.additudemag.com/adhd-emotional-overreaction-shame-blame/
+https://www.additudemag.com/adhd-how-to-center-emotions/
+https://www.additudemag.com/what-is-executive-function-disorder/ - 24/04/2023
 https://www.additudemag.com/slideshows/social-anxiety-disorder-in-adults-with-adhd/ - done
 https://www.additudemag.com/ocd-adhd-comorbid-symptoms-diagnosis-treatment/ 24/04/2023
 https://www.additudemag.com/vitamins-minerals-adhd-treatment-plan/ 
